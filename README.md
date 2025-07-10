@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... anything, I am looking to get my feet wet.
 - 📫 How to reach me ... via email.
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I am from Puerto Rico, was the Mayor of Greeley, Nebraska, and I Sec Def William Cohen during the Bill Clinton Administration.
+- ⚡ Fun fact: ... I am from Puerto Rico, was the Mayor of Greeley, Nebraska, and I met Sec Def William Cohen during the Bill Clinton Administration when I was a Senior in High School as part of our JROTC Annual Inspection .
 
 <!---
 FamBoricua2001/FamBoricua2001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
